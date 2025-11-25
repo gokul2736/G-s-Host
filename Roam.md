@@ -7,6 +7,12 @@
 - **To CMBT (Koyambedu):** Take **153** or **54** series.
 - **Metro Hack:** Take a share auto to **Airport Metro** (Blue Line) to skip the city traffic and reach Anna Nagar/Central in 20 mins.
 
+
+| Symbol | Estimated Cost | The Vibe |
+| :---: | :--- | :--- |
+| 💸 | **< ₹300** | **Student Mode.** Bus/Metro travel. Street food. Free entry spots (Beaches, Parks). Safe for month-end. |
+| 💸💸 | **₹400 - ₹900** | **The Weekend Plan.** Movies, decent cafes, theme park entry tickets, or sharing an Auto/Cab. |
+| 💸💸💸 | **> ₹1000** | **Rich Kid / Birthday Mode.** Fine dining, long-distance cab trips (Pondy/Mahabs), or expensive activities like Scuba/Paramotoring. |
 ---
 
 ## 📍 Zone 1: The Backyard (Thandalam, Poonamallee & Sriperumbudur)
